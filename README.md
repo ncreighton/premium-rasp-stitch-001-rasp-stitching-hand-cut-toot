@@ -1,0 +1,2 @@
+# premium-rasp-stitch-001-rasp-stitching-hand-cut-toot
+Tired of losing track of your rasp stitching progress, misplacing hand-cut tooth templates, or forgetting which leather pieces you've prepared? The Rasp Stitching &amp; Hand Cut Tooth Craft Workshop Notion template organizes every stage of your handmade creation—from material prep to final stitch—so you can focus on the craft, not the chaos.  This temp
